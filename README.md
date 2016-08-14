@@ -7,3 +7,6 @@
 ### August 12, 2016
 - [New "Bionic" Leaf Is Roughly 10 Times More Efficient Than Natural Photosynthesis - Scientific American](http://www.scientificamerican.com/article/new-bionic-leaf-is-roughly-10-times-more-efficient-than-natural-photosynthesis/) 
 - [STUDIO RONIN](http://studioronin.tumblr.com/) 
+
+### August 15, 2016
+- [Roman Architecture with Diana E. E. Kleiner](https://www.youtube.com/playlist?list=PLBCB3059E45654BCE) 
