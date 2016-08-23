@@ -10,3 +10,6 @@
 
 ### August 15, 2016
 - [Roman Architecture with Diana E. E. Kleiner](https://www.youtube.com/playlist?list=PLBCB3059E45654BCE) 
+
+### August 24, 2016
+- [J.R.R. Tolkien's Ainulindalë — Evan Palmer Comics](http://www.evanpalmercomics.com/ainulindale/) 
