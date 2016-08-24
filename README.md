@@ -14,3 +14,4 @@
 ### August 24, 2016
 - [J.R.R. Tolkien's Ainulindalë — Evan Palmer Comics](http://www.evanpalmercomics.com/ainulindale/) 
 - [Rick and Morty Wallpaper Dump - 1080p (103) - Album on Imgur](https://imgur.com/gallery/JioJm) 
+- [Another fix for Panda4994's simple fishing farm - Album on Imgur](https://imgur.com/a/pYsrM) 
