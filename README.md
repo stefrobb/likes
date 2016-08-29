@@ -20,3 +20,6 @@
 - [The Last Question - Album on Imgur](https://imgur.com/gallery/9KWrH) 
 - [Wallpapers1 - Album on Imgur](https://imgur.com/a/yPydD) 
 - [Wallpapers1 - Album on Imgur](https://imgur.com/a/yPydD) 
+
+### August 29, 2016
+- [On Finding Your Purpose: An Extraordinary Letter by Hunter S. Thompson](http://tranquilmonkey.com/hunter-s-thompsons-extraordinary-letter-on-finding-your-purpose/) 
