@@ -26,3 +26,6 @@
 
 ### September 11, 2016
 - [Terminal Bar](https://www.youtube.com/playlist?list=PLA52vqP7teRYc_3RYa6Q2U6bRP_hBXpM4) 
+
+### September 12, 2016
+- [The Terminal Bar, NYC: Derelicts, Wonderers, The Medicated, Pimps And Punters (1973-1981) |](http://flashbak.com/the-terminal-bar-nyc-derelicts-wonderers-the-medicated-pimps-and-punters-1973-1981-44751/) 
