@@ -23,3 +23,6 @@
 
 ### August 29, 2016
 - [On Finding Your Purpose: An Extraordinary Letter by Hunter S. Thompson](http://tranquilmonkey.com/hunter-s-thompsons-extraordinary-letter-on-finding-your-purpose/) 
+
+### September 11, 2016
+- [Terminal Bar](https://www.youtube.com/playlist?list=PLA52vqP7teRYc_3RYa6Q2U6bRP_hBXpM4) 
