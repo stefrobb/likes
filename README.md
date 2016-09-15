@@ -32,4 +32,3 @@
 
 ### September 15, 2016
 - [Terminal Bar - The Morning News](http://www.themorningnews.org/gallery/terminal-bar) 
-- [Search results | Flashbak](http://flashbak.com/search?q=glasgow) 
