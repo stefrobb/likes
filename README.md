@@ -32,3 +32,6 @@
 
 ### September 15, 2016
 - [Terminal Bar - The Morning News](http://www.themorningnews.org/gallery/terminal-bar) 
+
+### September 27, 2016
+- [Kāpiti Island - Album on Imgur](https://imgur.com/a/pKBLn) 
