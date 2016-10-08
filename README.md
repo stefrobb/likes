@@ -35,3 +35,6 @@
 
 ### September 27, 2016
 - [Kāpiti Island - Album on Imgur](https://imgur.com/a/pKBLn) 
+
+### October 9, 2016
+- [The Haunting Last Day of Hot Metal Typesetting at The New York Times | Hackaday](https://hackaday.com/2016/10/08/the-haunting-last-day-of-hot-metal-typesetting-at-the-new-york-times/) 
