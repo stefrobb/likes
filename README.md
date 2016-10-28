@@ -41,3 +41,6 @@
 
 ### October 24, 2016
 - [Chris Munos](https://lchrismunos.myportfolio.com/europe) 
+
+### October 29, 2016
+- [Loch Ness - 3D Bathymetry | Contours](http://contours.org.uk/bathymetry/ness/3d/) 
