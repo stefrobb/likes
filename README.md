@@ -44,3 +44,6 @@
 
 ### October 29, 2016
 - [Loch Ness - 3D Bathymetry | Contours](http://contours.org.uk/bathymetry/ness/3d/) 
+
+### December 20, 2016
+- [EkantTakePhotos for everyone - Album on Imgur](https://imgur.com/a/MptJh) 
