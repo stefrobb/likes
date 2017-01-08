@@ -47,3 +47,6 @@
 
 ### December 20, 2016
 - [EkantTakePhotos for everyone - Album on Imgur](https://imgur.com/a/MptJh) 
+
+### January 9, 2017
+- [The Chernobyl Story [Updated & Expanded] - Album on Imgur](https://imgur.com/a/TwY6q) 
