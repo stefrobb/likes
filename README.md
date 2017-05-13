@@ -53,3 +53,6 @@
 
 ### January 21, 2017
 - [Simon Stålenhag Art Gallery](http://www.simonstalenhag.se/) 
+
+### May 13, 2017
+- [A Day In The Life Of The New York Times – September 10 1942 |](http://flashbak.com/a-day-in-the-life-of-the-new-york-times-september-10-1942-379759/) 
