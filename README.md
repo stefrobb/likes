@@ -57,3 +57,6 @@
 ### May 13, 2017
 - [A Day In The Life Of The New York Times – September 10 1942 |](http://flashbak.com/a-day-in-the-life-of-the-new-york-times-september-10-1942-379759/) 
 - [A childhood of freedom – not trapped in a concrete jungle - Cumbernauld News](http://www.cumbernauld-news.co.uk/news/a-childhood-of-freedom-not-trapped-in-a-concrete-jungle-1-4442199) 
+
+### July 1, 2017
+- [The Fancy Halls of the Legislative Chambers of Europe - Album on Imgur](https://imgur.com/a/jqXDJ) 
